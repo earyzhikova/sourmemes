@@ -1,2 +1,2 @@
 # sourmemes
-my class is so original
+my class is so original and awesome
