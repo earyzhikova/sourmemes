@@ -1,2 +1,2 @@
 # sourmemes
-my class isn't too original
+my class is so original
